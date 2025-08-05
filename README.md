@@ -1,4 +1,7 @@
 # induction program -2025
+### Name- prabhjot singh
+### Reg.no.-2510108
+### branch-B.tech Mechanical 
 ## Day-1 (30 July 2025) 
 
 ![Image](https://github.com/user-attachments/assets/14039f17-f64e-4782-858d-25ff3d97bc3b)
