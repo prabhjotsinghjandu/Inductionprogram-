@@ -15,5 +15,11 @@ The day started with seeking the blessings of the guru in the gurudwara of the c
 
 ## Day -3(4 August 2025)
 
-The day started with seeking the blessings of the guru in the gurudwara of the campus.Today in the auditorium we came to know about how many clubs are there in the campus,about fests and competitions.we also came to know about the causmic club,who are the members,recruitement forms of club.after that we were guided by the seniors how to use github,how to make  readfile in it under the guidence of Dr Randhir singh and Dr. Harpreet Kaur.then we were given lecture on universal 
+The day started with seeking the blessings of the guru in the gurudwara of the campus.Today in the auditorium we came to know about how many clubs are there in the campus,about fests and competitions.we also came to know about the causmic club,who are the members,recruitement forms of club.after that we were guided by the seniors how to use github,how to make  readfile in it under the guidance of Dr Randhir singh and Dr. Harpreet Kaur.then we were given lecture on universal 
 human values by the expert Dr. priya Darshni madam.she got us familiar with some important values also told us about basic human aspirations,what is wrong and right.after the break we had our lecture in mechanical seminar hall with prof.Jaswant singh.he has a very friendly behaviour.we had some general talks and then finished the lecture. 
+
+## Day -4(5 August 2025)
+
+Day-4 ( 5-August-2025)
+
+Today we have our lecture straight after the break. The lecture was about the trending topic “Motorsports”by expert Mr. Gautam murria.it was is seminar hall.He got us familiar with the latest motorsports rules and regulations.he told us to see out of the box,see which one can be used as limitation and are not in rules can be used in beneficiary in the race.later he told about the race competition in campus and how to enroll for it.He gave us information about the arduino board and other nano boards.next we had lecture in the auditorium.it was a lecture given by the expert Mrs. Shaffy makkar on another trending topic “Millets super food”.Millets are the species which can be grown on any part of land or soil. She gave us information about how many types of millets there are and their food nutrition.She also told us about cooking nutritious food.we had a great time with mam about exploring the nutritions of millets.
