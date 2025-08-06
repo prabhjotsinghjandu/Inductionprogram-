@@ -26,3 +26,12 @@ human values by the expert Dr. priya Darshni madam.she got us familiar with some
 Day-4 ( 5-August-2025)
 
 Today we have our lecture straight after the break. The lecture was about the trending topic “Motorsports”by expert Mr. Gautam murria.it was is seminar hall.He got us familiar with the latest motorsports rules and regulations.he told us to see out of the box,see which one can be used as limitation and are not in rules can be used in beneficiary in the race.later he told about the race competition in campus and how to enroll for it.He gave us information about the arduino board and other nano boards.next we had lecture in the auditorium.it was a lecture given by the expert Mrs. Shaffy makkar on another trending topic “Millets super food”.Millets are the species which can be grown on any part of land or soil. She gave us information about how many types of millets there are and their food nutrition.She also told us about cooking nutritious food.we had a great time with mam about exploring the nutritions of millets.
+
+Day 5( 6-August-2025) 
+
+Today our first lecture was by Dr. Parminder singh (Dean-Student welfare).he introduced us to the various activities and clubs in the college.He described about the sports complex of the college.
+
+He also told each and every student to be a member of one club.I personally want to be in(SAF) society of automobile engineers.we have more to explore in the college.next we had a lecture by Mr. Mandeep singh on topic “fitness for engineers”.he discussed fitness in today's adults.he is a professional body builder and the sarpanch too.He awared us about gym exercises,about protein intake in body and cleared our doubts of health and exercise. Next we had a lecture by respected brigadier P.S. Cheema sir.next after break we had our p2p lecture.we gained knowledge about basics of c++ language.the lecture was very interesting 
+
+It was easy to understand.next we had our last lecture of the day by prof. Nisha.she was our English lecturer.she told us about public speaking,mam pointed out some students and told them to introduce themself in front of us.then we called it the day.
+
