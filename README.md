@@ -28,7 +28,7 @@ Today we have our lecture straight after the break. The lecture was about the tr
 ## Day 5( 6-August-2025) 
 
 Today our first lecture was by Dr. Parminder singh (Dean-Student welfare).he introduced us to the various activities and clubs in the college.He described about the sports complex of the college.
-
+![Image](https://github.com/user-attachments/assets/ee9d9d7d-ab5e-446e-a9a9-654507e07116)
 He also told each and every student to be a member of one club.I personally want to be in(SAF) society of automobile engineers.we have more to explore in the college.next we had a lecture by Mr. Mandeep singh on topic “fitness for engineers”.he discussed fitness in today's adults.he is a professional body builder and the sarpanch too.He awared us about gym exercises,about protein intake in body and cleared our doubts of health and exercise. Next we had a lecture by respected brigadier P.S. Cheema sir.next after break we had our p2p lecture.we gained knowledge about basics of c++ language.the lecture was very interesting 
 
 It was easy to understand.next we had our last lecture of the day by prof. Nisha.she was our English lecturer.she told us about public speaking,mam pointed out some students and told them to introduce themself in front of us.then we called it the day.
