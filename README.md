@@ -42,7 +42,7 @@ Today the first task of the day was to submit the document for our identity card
 
 We went to see the swimming pool,sports complex,explore the taste of many dishes in the canteen and many more.after break we had our lecture by  Dr. Lakhveer singh khana on CML.CML stands for center of multifaceted learning.it helps an individual to develop self-grooming opportunities and in campus facilities.We students and Sir had a very great interaction.everyone clapped after some time to greet sir.
 ![Image](https://github.com/user-attachments/assets/da41a317-41b7-4654-97fe-ac942be0ebdb)
-next we had our last lecture by Dr. Jasvir singh Gerewal in charge of NSS.it stands for National service scheme.the lecture started with kirtan done by the boys of 3rd and 2nd year.they too performed rags of music.then they performed some funny drama to make us laugh.we played games too.them we saw some video.the quote said by NSS is “we are volunteering for a cause,not for applause  ”then we called it a day 
+next we had our last lecture by Dr. Jasvir singh Gerewal in charge of NSS.it stands for National service scheme.the lecture started with kirtan done by the boys of 3rd and 2nd year.they too performed raags of music.then they performed some funny drama to make us laugh.we played games too.them we saw some video.the quote said by NSS is “we are volunteering for a cause,not for applause  ”then we called it a day 
 
 
 
