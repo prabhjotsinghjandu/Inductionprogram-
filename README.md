@@ -1,5 +1,5 @@
 # induction program -2025
-### Name- prabhjot singh
+### Name- prabhjot singh Jandu
 ### Reg.no.-2510108
 ### branch-B.tech Mechanical 
 ## Day-1 (30 July 2025) 
