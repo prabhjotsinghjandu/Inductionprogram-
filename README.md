@@ -33,3 +33,25 @@ He also told each and every student to be a member of one club.I personally want
 
 It was easy to understand.next we had our last lecture of the day by prof. Nisha.she was our English lecturer.she told us about public speaking,mam pointed out some students and told them to introduce themself in front of us.then we called it the day.
 
+
+## Day-6 (7- August-2025)
+
+ 
+
+Today the first task of the day was to submit the document for our identity card.Our photographs were taken through a webcam individually.then we had free time to explore the campus till break time.
+
+We went to see the swimming pool,sports complex,explore the taste of many dishes in the canteen and many more.after break we had our lecture by  Dr. Lakhveer singh khana on CML.CML stands for center of multifaceted learning.it helps an individual to develop self-grooming opportunities and in campus facilities.We students and Sir had a very great interaction.everyone clapped after some time to greet sir.
+
+
+
+next we had our last lecture by Dr. Jasvir singh Gerewal in charge of NSS.it stands for National service scheme.the lecture started with kirtan done by the boys of 3rd and 2nd year.they too performed rags of music.then they performed some funny drama to make us laugh.we played games too.them we saw some video.the quote said by NSS is “we are volunteering for a cause,not for applause  ”then we called it a day 
+
+
+
+# Conclusion
+
+The induction program at Guru Nanak Dev Engineering College was a truly enriching and inspiring experience. Over the week, I was introduced not only to the college’s academic opportunities but also its rich spiritual and cultural atmosphere, beginning each day with the blessings at the Gurdwara. The variety of sessions—ranging from motivational talks by esteemed faculty and trustees, expert lectures on human values, motorsports, nutrition, fitness, and public speaking, to engaging activities organized by various clubs—helped me get a holistic understanding of campus life and the many avenues for personal and professional growth.
+I especially appreciated the interactive approach taken by the speakers and the encouragement to get involved in extracurricular activities, which fostered a sense of belonging and excitement among new students like me. The tours of campus facilities further helped me feel at home, and the early exposure to technical topics, peer engagement, and support services set a positive tone for my journey ahead. The induction program has instilled in me a strong sense of motivation, belonging, and readiness to embrace college life to the fullest.
+
+
+
